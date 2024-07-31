@@ -8,6 +8,8 @@
 
 📫 How to reach me: Drop me a message here or via LinkedIn!
 
+https://www.linkedin.com/in/kkavyasree
+
 😄 Pronouns: She/her
 
 ⚡ Fun fact: I love exploring new cuisines and cooking experiments!
